@@ -1,4 +1,5 @@
-### Hi there 👋
+
+### I am here trying to be good enough to do awesome things for people 😎 
 
 <!--
 **jimaid/jimaid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
