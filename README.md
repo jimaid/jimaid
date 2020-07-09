@@ -1,5 +1,5 @@
-
-### I am here trying to be good enough to do awesome things for people 😎 
+![Image](https://www.poynter.org/wp-content/uploads/2019/12/shutterstock_1210372216.jpg)
+## Here trying to be good enough to do awesome things for people 😎 
 
 <!--
 **jimaid/jimaid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
