@@ -1,4 +1,5 @@
 ![Image](https://www.poynter.org/wp-content/uploads/2019/12/shutterstock_1210372216.jpg)
+If things don't go my way, I normally pick my ball and leave🤣🤣🤣
 ## Here trying to be good enough to do awesome things for people 😎 
 
 <!--
